@@ -1,1 +1,1 @@
-jõao fico viuvo 
+joão ganhou esposa
