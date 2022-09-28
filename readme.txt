@@ -1,1 +1,1 @@
-manda pix cpf 05139581000
+joão ficou viuvo
