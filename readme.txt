@@ -1,1 +1,1 @@
-joão ganhou esposa
+manda pix cpf 05139581000
